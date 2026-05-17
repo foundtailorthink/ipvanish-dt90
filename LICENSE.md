@@ -1,10 +1,10 @@
-سرعة عالية IPVanish إضافة | دعم P2P + حماية تسرب DNS هو أفضل IPVanish إضافة مع دعم P2P و حماية تسرب DNS. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/ipvanish-dt90/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
