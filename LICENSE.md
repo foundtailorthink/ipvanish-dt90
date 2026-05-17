@@ -1,10 +1,10 @@
-Alta Velocidad IPVanish Complemento | soporte P2P + protección contra fugas de DNS es el mejor IPVanish complemento con soporte P2P y protección contra fugas de DNS. Seguro y
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/ipvanish-dt90/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
