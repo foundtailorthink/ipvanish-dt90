@@ -1,10 +1,10 @@
-高速IPVanish插件 | P2P支持 + DNS泄露保护 是最佳 IPVanish 插件，集成 P2P支持 和 DNS泄露保护。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ipvanish-dt90/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
