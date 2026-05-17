@@ -1,10 +1,10 @@
-Alta Velocidade IPVanish Plugin | suporte P2P + proteção contra vazamento de DNS é o melhor IPVanish plugin com suporte P2P e proteção contra vazamento de DNS. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ipvanish-dt90/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
