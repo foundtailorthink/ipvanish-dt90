@@ -1,10 +1,10 @@
-High-Speed IPVanish Plugin | P2P support + DNS leak protection is the best IPVanish plugin with P2P support and DNS leak protection. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/ipvanish-dt90/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
